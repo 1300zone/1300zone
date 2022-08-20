@@ -1,8 +1,10 @@
 @1300zone
+
 making a light novel for fun
-coding + making music
-not certain about collabs
-AEEDP#3564
+
+making music
+
+not certain about collabs suck at leadership
 
 <!---
 1300zone/1300zone is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
